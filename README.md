@@ -1,3 +1,5 @@
 # delete
 
-![Alt Text]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif](https://in.pinterest.com/pin/1048846200705963985/)https://in.pinterest.com/pin/1048846200705963985/)
+
+
+![](https://i.pinimg.com/originals/45/04/28/4504285f9f12ea09bed8366f05a399d4.gif)
